@@ -4,4 +4,6 @@
 
 All the code in these repos was created and explained by William Luppi on the main YouTube channel (Deleted).
 
+Broken pls be patient
+
 Lost file
